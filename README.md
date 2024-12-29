@@ -1,7 +1,7 @@
 ## 极酷加速器 # 
 
 
-#### 极致加速 酷炫体验
+#### 极致加速 酷炫畅游
 - - - -
 **:globe_with_meridians:---<a href="https://hxapp.vip">访问官方网站</a>**
 
