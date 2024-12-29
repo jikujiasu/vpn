@@ -1,6 +1,4 @@
-
- 
-## 极酷加速器 #![微信图片_20241229134128](https://github.com/user-attachments/assets/2c7ef24c-3d73-4aa0-b104-6267ee483e05)
+## 极酷加速器 # 
 
 
 #### 极致加速 酷炫体验
@@ -20,9 +18,10 @@
 请使用浏览器下载安装包
  - - - -
 **:bird:. [Twitter](https://twitter.com/HongXingKF)** 
- 
-**:airplane:. [Telegeam客服]https://t.me/kfhongxing**        
-**:e-mail:. [邮件联系我们]hongxingkf@gmail.com** 
+
+**:airplane:. [Telegeam客服]https://t.me/kfhongxing**    
+
+**:e-mail:. [邮件联系我们]jikujiasu@gmail.com** 
              
  - - - -
  #### ...专线传输 不限流量 不限速度 永不失联...
