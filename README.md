@@ -19,7 +19,7 @@
  - - - -
 **:bird:. [Twitter](https://twitter.com/HongXingKF)** 
 
-**:airplane:. [Telegeam客服]https://t.me/kfhongxing**    
+**:airplane:. [Telegeam客服]https://t.me/JiKuVPN**    
 
 **:e-mail:. [邮件联系我们]jikujiasu@gmail.com** 
              
